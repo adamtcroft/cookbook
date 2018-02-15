@@ -8,6 +8,7 @@
 2 tablespoons of butter, melted
 2.5 cups of shredded cheddar cheese
 Salt and Pepper
+Texas Toast croutons (optional)
 ```
 
 ## Directions
@@ -20,4 +21,10 @@ Salt and Pepper
 7. Pour the egg and cheese mixture over the macaroni
 8. Add salt and pepper to dish
 9. Stir well, spread mixture evenly around the dish
-10. Bake uncovered 30-40 minutes
+10. Top with smashed Texas Toast crutons
+11. Bake uncovered 30-40 minutes
+
+## Additional Lessons
+The first time making this I cut to 1.5 cups of milk and 2 cups (give or take) of cheese.  Cooked for 35 minutes, then added 10 minutes @ 375.
+
+Bake was good, would not use any less milk.  Needed more cheese, would _definitely_ use at least 2.5 cups of cheese, and may _always_ need additional cheese to melt in at the end.
